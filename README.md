@@ -1,1 +1,0 @@
-# GAMMAMA.github.io    yeah
